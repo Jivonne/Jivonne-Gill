@@ -26,7 +26,7 @@
 
 
 
-[linkedin]: www.linkedin.com/in/jivonne-g-262177348
+[linkedin]: www.linkedin.com/in/jivonne-gill
 
 
 
